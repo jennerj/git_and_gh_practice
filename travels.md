@@ -1,0 +1,1 @@
+Traveled to Cancun Mexico once and it was amazing! The sights were amazing and I got to eat a lot of food I normally wouldn't have tried. I got to see some mayan ruins and temples and even got to go scuba diving. 
